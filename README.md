@@ -3,7 +3,7 @@
 Stretch film and wrap are essential packaging materials used to secure pallets, bundle products, and protect goods during storage and transportation. Made from high-strength plastic, stretch film provides flexibility and cling to keep items tightly bound without adhesive. For businesses in Irvine dealing with high-volume shipping or warehouse logistics, purchasing stretch film at wholesale prices ensures cost efficiency and consistent supply.
 
 ---
-[Explore Our Stretch Film Products](https://www.bluerosepackaging.com/product-category/custom-products/stretch-film/)
+[Explore Our Stretch Film Products](https://www.bluerosepackaging.com/product-category/stock-products/stretch-film-stretch-wrap/)
 ---
 
 ## Types of Stretch Film We Offer
